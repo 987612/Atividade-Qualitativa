@@ -1,2 +1,3 @@
-# Atividade-Qualitativa
-# Atividade-Qualitativa
+Isaias Carlos Rodrigues de Carvalho
+Marcus Antonio Serra Marinho
+Esdras Matheus
